@@ -18,4 +18,4 @@ I'm currently working for South Africa's largest privately owned Software Develo
 
 ### Contact me
 
-If you would like to contact me please do so through [LinkedIn](https://www.linkedin.com/in/michael-labuschagne-3188297/) or [Twitter](https://twitter.com/kel3vr4)
+If you would like to contact me please do so via [LinkedIn](https://www.linkedin.com/in/michael-labuschagne-3188297/) or [Twitter](https://twitter.com/kel3vr4)
